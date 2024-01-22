@@ -1,5 +1,5 @@
 <h2 align="center">
-    ──「 ᴀɴᴏɴ ダ ᴍᴜsɪᴄ 」──
+    ──「 XCRY ダ MUSIC 」──
 </h2>
 
 <p align="center">
